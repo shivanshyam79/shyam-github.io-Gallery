@@ -1,4 +1,4 @@
-![Screenshot 2025-03-22 135124](https://github.com/user-attachments/assets/00bc8f8d-e326-45ad-b358-971b630135eb)# github.io-Gallery# Activity 01 
+# github.io-Gallery# Activity 01 
 ## Date: 22.03.2025
 
 ## AIM
